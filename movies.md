@@ -1,0 +1,5 @@
+- A Scanner Darkly - https://youtu.be/hkjDUERgCQw
+- Perfect Blue
+- Black Swan
+- Madame Butterfly
+- Paprika
