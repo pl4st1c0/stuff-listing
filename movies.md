@@ -8,3 +8,4 @@
 - Paprika
 - Hitchhiker's guide to the galaxy
 - Rashomon
+- Zatōichi
